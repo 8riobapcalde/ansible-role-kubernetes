@@ -1,0 +1,17 @@
+`
+AlexandriZ l'integrale ou - 2526 livres et romans: la saga du piratage littÃ©raire
+Vous aimez lire des ebooks de science-fiction, fantasy ou policier? Vous connaissez peut-Ãªtre la Team AlexandriZ, une Ã©quipe de pirates franÃ§ais qui a numÃ©risÃ© et diffusÃ© gratuitement plus de 2500 livres Ã©lectroniques entre 2009 et 2013. Dans cet article, nous vous racontons l'histoire de cette team de release, ses motivations, ses mÃ©thodes et les consÃ©quences juridiques de son activitÃ©.
+Download Zip ———>>> https://t.co/0tXaNCsnZY
+
+
+Qui Ã©tait la Team AlexandriZ?
+La Team AlexandriZ Ã©tait le nom d'un groupe d'une quinzaine de passionnÃ©s de lecture qui se sont donnÃ© pour mission de numÃ©riser et de partager des livres Ã©lectroniques en franÃ§ais. Leur site web, www.teamalexandriz.org, proposait des fichiers zippÃ©s multi formats (doc, PDF, epub, mobi et HTML) contenant des scans, des OCR, des corrections et des packagings de qualitÃ© professionnelle. Tous les ebooks Ã©taient des crÃ©ations originales des membres de la team, qui se cachaient derriÃ¨re des pseudonymes. Le site disposait Ã©galement d'un forum oÃ¹ les internautes pouvaient Ã©changer leurs propres numÃ©risations ou des livres dont ils avaient retirÃ© les DRM (systÃ¨mes de protection anti-copie).
+La Team AlexandriZ se prÃ©sentait comme "no 1 sur les ebooks FR" et revendiquait une dÃ©marche militante en faveur de la culture libre et du partage. Elle se couvrait par la loi L. 122-5 du Code de PropriÃ©tÃ© Intellectuelle, qui admet une exception pour la copie privÃ©e. Ainsi, les utilisateurs du site pouvaient tÃ©lÃ©charger lÃ©galement les Åuvres prÃ©sentes sur le site s'ils en possÃ©daient l'original. En pratique, le dispositif Ã©tait totalement incontrÃ´lable.
+Quels Ã©taient les livres numÃ©risÃ©s par la Team AlexandriZ?
+La Team AlexandriZ se spÃ©cialisait dans les genres de la science-fiction, du fantasy et du policier. Elle proposait un catalogue variÃ© et Ã©clectique, comprenant des classiques de la littÃ©rature (Jules Verne, H.G. Wells, Agatha Christie...), des best-sellers contemporains (Stephen King, Dan Brown, Marc Levy...), des auteurs francophones (Bernard Werber, Pierre Bordage, Maxime Chattam...) ou encore des essais (Michel Onfray, Alain Soral, Michel Houellebecq...). Le site offrait Ã©galement des sÃ©lections thÃ©matiques (par exemple "Les vampires", "Les dystopies", "Les prix littÃ©raires"...).
+Pour chaque livre, le site fournissait une photo de la couverture, des informations sur l'auteur, la langue, le nombre de pages, le numÃ©ro ISBN, une note de l'Åuvre, un descriptif de l'ebook et un descriptif de l'upload. Il donnait Ã©galement accÃ¨s Ã  plusieurs liens de tÃ©lÃ©chargement direct ou via torrent (Bayfiles, Depositfiles, Mediafire...), ainsi qu'Ã  un lien vers la librairie d'Amazon.
+Quelles ont Ã©tÃ© les rÃ©actions des Ã©diteurs face Ã  la Team AlexandriZ?
+La Team AlexandriZ a suscitÃ© la colÃ¨re et l'inquiÃ©tude des Ã©diteurs franÃ§ais, qui voyaient dans son activitÃ© une menace pour leurs revenus et leurs droits d'auteur. En effet, le marchÃ© du livre numÃ©rique Ã©tait encore naissant en France Ã  l'Ã©poque et les offres lÃ©gales Ã©taient peu attractives. Les ebooks Ã©taient souvent vendus plus cher que leurs Ã©quivalents papier, alors qu'ils ne supportaient aucun frais 8cf37b1e13
+
+
+`
